@@ -50,4 +50,4 @@ The book is available for purchase on [Google Books](https://books.google.com.bd
 
 ### Thank you for your support!
 ![454859151_874148560917227_2096720131237435057_n](https://github.com/user-attachments/assets/50192b03-eb19-4fc1-9a50-d40abdc4bc6e)
-sabbirhosenakash.github.io
+https://sabbirhosenakash.github.io
